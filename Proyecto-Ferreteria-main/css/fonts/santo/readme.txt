@@ -1,0 +1,1 @@
+Ésta tipografia es de uso libre y 100% gratuita para cualquier fin. Cualquier duda contactarse conmigo al siguiente correo: erhardbazan@hotmail.com
